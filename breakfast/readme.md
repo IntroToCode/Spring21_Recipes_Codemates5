@@ -8,14 +8,14 @@
 
 ## Ingredients:
 
-- 4 burrito-sized flour tortillas
+- 4 large flour tortillas
 - 1.5 cups of shredded cheese (Monterey Jack, mozzarella, or whatever you'd like!)
 - 1/2 lb. of sausage (Breakfast, spicy, chorizo)
-- 4 large eggs
-- 1 large avocado (peeled, pitted, and diced up)
+- 4 large eggs 🥚
+- 1 large avocado (peeled, pitted, and diced up) 🥑
 - 1/2 to 1/3 cup of tomato salsa
 - Vegetable oil or non-stick spray
-- Salt
+- Salt 🧂
 - Pepper
 - 1/4 teaspoon of paprika
 - Sour cream (optional)
@@ -25,8 +25,8 @@
 
 - Non-stick pan (10" or larger)
 - Spatula (Make sure it won't affect the non-stick aspect of pan - a metal spatula may not be the best)
-- Slotted spoon
-- Knife
+- Slotted spoon (preferrably)
+- Knife 
 - Medium bowls for mixing/ whisking
 - Plates
 
@@ -40,7 +40,7 @@
 - Now it's time to roll! Fold in the sides of the tortilla over the filling and tightly roll it while tucking in the edges.
 - On medium heat, lightly coat the pan with either oil or nonstick spray. Once the pan is hot, place the burritos in the pan, seam side down. 
 - Cover the pan and cook the burrito until the bottom is golden brown (about 3 minutes). Then, flip the burrito over and cover again until golden.
-- Once golden brown, the burritos should be served shortly after so they stay warm!
+- Once golden brown, the burritos should be served shortly after so they stay warm! 🔥
 
 
 ### Notes:
