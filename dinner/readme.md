@@ -19,7 +19,7 @@ Freshly ground black pepper
 Grated parmesan
 
 ## Equipment needed:
-Medium pot
+Large pot
 Strainer
 Measuring Cups
 Measuring Spoons
@@ -36,7 +36,7 @@ Bowls for serving 🥣
 
 
 ### Notes:
-Left overs? Store in the fridge for up to three days.
+Left overs? Store in the fridge for up to three days or freeze it for up to 2 weeks.
 
 
 ### Codemates #
