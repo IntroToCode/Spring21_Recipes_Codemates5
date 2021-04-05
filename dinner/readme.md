@@ -26,7 +26,7 @@ Measuring Spoons
 Bowls for serving
 
 ## Steps for preparation:
-1. Cook pasta al dente, about 1 minute shy of doneness. Scoop out 1 1/2 cups of pasta water and set aside. Drain pasta.
+1. Cook pasta al dente, about 1 minute shy of doneness. Scoop out 1 1/2 cups of pasta water and set aside. Drain pasta. 
 2. In your empty pasta pot, heat olive oil and butter over medium heat. Add shallots, garlic, and pepper flakes (1/2 teaspoon for a moderate kick), and cook until shallots are softened but not brown, about 3 to 4 minutes. 
 3. Add vodka and cook, stirring up anything stuck, until vodka disappears. Add tomato paste and cook, stirring, for 3 to 4 minutes, until the tomato paste is one shade darker. 
 4. Add 1 cup of the reserved pasta water, scraping up any stuck tomato paste, stirring until the mixture becomes a sauce. Season it now — I add just about 2 teaspoons kosher salt and many grinds of black pepper — simmer for 2 minutes. 
@@ -36,7 +36,7 @@ Bowls for serving
 
 
 ### Notes:
-Any suggestions?
+Left overs? Store in the fridge for up to three days.
 
 
 ### Codemates #
