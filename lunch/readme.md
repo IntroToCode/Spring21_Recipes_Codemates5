@@ -6,7 +6,7 @@
 
 ## Ingredients:
 
-Bread of choice (2 slices), sliced cheese of choice (go nuts), and butter (approx 1 tsp)
+Wheat Bread (2 slices), sliced cheese of choice (go nuts), and butter (approx 1 tsp)
 
 ## Equipment needed:
 
