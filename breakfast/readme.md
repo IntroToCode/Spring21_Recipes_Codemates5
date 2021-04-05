@@ -25,8 +25,8 @@
 
 - Non-stick pan (10" or larger)
 - Spatula (Make sure it won't affect the non-stick aspect of pan - a metal spatula may not be the best)
-- Slotted spoon
-- Knife
+- Slotted spoon (preferrably)
+- Knife 
 - Medium bowls for mixing/ whisking
 - Plates
 
