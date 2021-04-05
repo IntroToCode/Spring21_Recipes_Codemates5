@@ -16,7 +16,7 @@ Red pepper flakes
 1/2 cup tomato paste
 Freshly ground black pepper
 1/2 to 1 cup heavy cream
-Grated parmesan
+Grated parmesan 👀
 
 ## Equipment needed:
 Large pot
