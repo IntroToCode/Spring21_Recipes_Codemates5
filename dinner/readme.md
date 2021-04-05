@@ -19,7 +19,7 @@ Freshly ground black pepper
 Grated parmesan
 
 ## Equipment needed:
-Large pot
+Medium pot
 Strainer
 Measuring Cups
 Measuring Spoons
