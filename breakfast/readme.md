@@ -11,8 +11,8 @@
 - 4 burrito-sized flour tortillas
 - 1.5 cups of shredded cheese (Monterey Jack, mozzarella, or whatever you'd like!)
 - 1/2 lb. of sausage (Breakfast, spicy, chorizo)
-- 4 large eggs
-- 1 large avocado (peeled, pitted, and diced up)
+- 4 large eggs 🥚
+- 1 large avocado (peeled, pitted, and diced up) 🥑
 - 1/2 to 1/3 cup of tomato salsa
 - Vegetable oil or non-stick spray
 - Salt 🧂
