@@ -15,7 +15,7 @@
 - 1 large avocado (peeled, pitted, and diced up)
 - 1/2 to 1/3 cup of tomato salsa
 - Vegetable oil or non-stick spray
-- Salt
+- Salt 🧂
 - Pepper
 - 1/4 teaspoon of paprika
 - Sour cream (optional)
