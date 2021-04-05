@@ -8,7 +8,7 @@
 
 ## Ingredients:
 
-- 4 burrito-sized flour tortillas
+- 4 large flour tortillas
 - 1.5 cups of shredded cheese (Monterey Jack, mozzarella, or whatever you'd like!)
 - 1/2 lb. of sausage (Breakfast, spicy, chorizo)
 - 4 large eggs 🥚
