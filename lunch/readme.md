@@ -11,6 +11,7 @@ Wheat Bread (2 slices), sliced cheese of choice (go nuts), and butter (approx 1 
 ## Equipment needed:
 
 Spatula and frying pan
+Don't forget a plate for your finished product!
 
 
 ## Steps for preparation:
