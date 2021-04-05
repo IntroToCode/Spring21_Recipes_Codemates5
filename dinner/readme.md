@@ -12,7 +12,7 @@ Kosher salt
 1 large shallot
 Red pepper flakes
 3 garlic cloves
-1/2 cup vodka
+1/2 cup vodka 🍶
 1/2 cup tomato paste
 Freshly ground black pepper
 1/2 to 1 cup heavy cream
@@ -23,7 +23,7 @@ Large pot
 Strainer
 Measuring Cups
 Measuring Spoons
-Bowls for serving
+Bowls for serving 🥣
 
 ## Steps for preparation:
 1. Cook pasta al dente, about 1 minute shy of doneness. Scoop out 1 1/2 cups of pasta water and set aside. Drain pasta. 
