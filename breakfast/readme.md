@@ -40,7 +40,7 @@
 - Now it's time to roll! Fold in the sides of the tortilla over the filling and tightly roll it while tucking in the edges.
 - On medium heat, lightly coat the pan with either oil or nonstick spray. Once the pan is hot, place the burritos in the pan, seam side down. 
 - Cover the pan and cook the burrito until the bottom is golden brown (about 3 minutes). Then, flip the burrito over and cover again until golden.
-- Once golden brown, the burritos should be served shortly after so they stay warm!
+- Once golden brown, the burritos should be served shortly after so they stay warm! 🔥
 
 
 ### Notes:
